@@ -1,5 +1,5 @@
 # The berlin wall
-This presentation is all about the berlin wall specifically how it started and how it ended
+This presentation is all about the berlin wall specifically how it started and how it ended.
 
 
-  It all sarted after world war 2, berlin was split into 2 sides the american side and the russian side the first side well be talking about though is how berlin was split into two
+  It all sarted after world war 2, berlin was split into two parts the allies had one half and the russian's had the other. The first thing ill be talking about is how berlin wall was made and what life was like before, during, and after. It all began when World War 2 ended. The allies split Germany into two. And berlin being in the middle ment that it was split into two. Russia had control of one side and America had the other side 
